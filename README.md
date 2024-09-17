@@ -12,6 +12,6 @@ Faça como eu e edite seu perfil também:
   
   
 
-![](https://tenor.com/pt-BR/view/spongebob-patrick-dancing-ballet-gif-8690542#:~:text=Spongebob%20Patrick%20GIF-,%E2%97%8F%20GIF%20SD,-%E2%97%8F%20GIF%20HD)
+
 <!--
 -->
